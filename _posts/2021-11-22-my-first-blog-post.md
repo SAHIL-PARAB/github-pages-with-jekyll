@@ -1,0 +1,9 @@
+---
+title: "STEINS;GATE ?"
+date: 2021-11-22
+---
+
+***Hello Everyone*** <br>
+This Blog is created by \*Supashey\* <br>
+Why is everyone gathered __here__ ? <br>
+_Exactly!!!_ For ***STEINS;GATE***.
